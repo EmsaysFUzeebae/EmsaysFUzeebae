@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @EmsaysFUzeebae
+- 👀 I’m interested in ... learning h9w to decode fake apps or files. 
+- 🌱 I’m currently learning ... how to do what I stated above
+- 💞️ I’m looking to collaborate on anything that can teach me to decode
+- 📫 How to reach me ... on this app
+- 😄 Pronouns: ... I'm a biological female and she/her are my pronouns
+- ⚡ Fun fact: ... I love gardening it peels the world away
